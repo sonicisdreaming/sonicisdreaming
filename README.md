@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="498" height="283" alt="bleach-ichigo-kurosaki" src="https://github.com/user-attachments/assets/09e9e156-27b1-4ca1-915a-e8bd7edfe5f8" />
+ <img width="2048" height="647" alt="20250305_001624" src="https://github.com/user-attachments/assets/de1e1acc-2f09-4971-a553-8a23f5231807" />
 </p>
 
 
@@ -7,7 +7,7 @@
 # alex / alfheimr
 <p align="center">
 Hey Hey!
-My name is Alex, but I go by any variation of Alexander or Alfheimr (Alex, Andr, Alf, Alfie ETC)
+My name is Alex, but I go by any variation o Sonic or Alexander!
 
 <p align="center">
 I'm a super big gamer! Board games, gacha games, video games (Especially Indie!), TTRPGs, everything!
@@ -15,6 +15,6 @@ Most of my other interests are Anime & Manga (Bleach, Noragami, Fate Series, and
 
 
 <p align="center">
-<img width="498" height="208" alt="bleach-tybw" src="https://github.com/user-attachments/assets/29409076-dc94-4c4d-8c89-28bfe61dd3aa" />
+<img width="1877" height="2048" alt="20250314_122040" src="https://github.com/user-attachments/assets/884f644c-7d57-4ce2-b4aa-6194584de061" />
 </p>
 
