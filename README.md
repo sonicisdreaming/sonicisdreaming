@@ -17,3 +17,4 @@ Most of my other interests are Anime & Manga (Bleach, Noragami, Fate Series, and
 <p align="center">
 <img width="498" height="208" alt="bleach-tybw" src="https://github.com/user-attachments/assets/29409076-dc94-4c4d-8c89-28bfe61dd3aa" />
 </p>
+
