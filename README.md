@@ -7,7 +7,7 @@
 # alex / alfheimr
 <p align="center">
 Hey Hey!
-My name is Alex, but I go by any variation o Sonic or Alexander!
+My name is Alex, but I go by any variation of Sonic or Alexander!
 
 <p align="center">
 I'm a super big gamer! Board games, gacha games, video games (Especially Indie!), TTRPGs, everything!
