@@ -10,6 +10,7 @@ Hey Hey!
 My name is Alex, but I go by any variation of Sonic or Alexander!
 
 <p align="center">
+If you follow on Github, please also send a Gimmick on my strawpage so we can interact! I tend to remove otherwise.
 I'm a super big gamer! Board games, gacha games, video games (Especially Indie!), TTRPGs, everything!
 Most of my other interests are Anime & Manga (Bleach, Noragami, Fate Series, and MOAR)
 
